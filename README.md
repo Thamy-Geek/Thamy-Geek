@@ -5,7 +5,7 @@ Sou uma pessoa apaixonada por tecnologia. Atualmente, estou trabalhando na Area 
 10 anos e como Design Gráfico a 3 anos, com experiência prática nas áreas.
 - 👋 Olá! Eu sou Thamy        
 - 💼 Sobre Mim:                                                    
-- 💞️ I’m looking to collaborate on wm peojetos ..
+- 💞️ I’m looking to collaborate em projetos ..
 - 👀 I’Como me encontrar:
 - 🌱 LinkedIn: www.linkedin.com/in/thamara-spigolon.
 - 📫 E-mail: thamara_catharine@hotmail.com. 
