@@ -13,8 +13,6 @@ Sou uma pessoa apaixonada por tecnologia. Atualmente, estou trabalhando na Area 
 - ⚡ Fun fact:Desenvolvo Trabalho Voluntário como Chefe da Tropa escoteiros no Grupo Escoteiro Tamandaré/ Piracicaba 
 SP, sou Coordenadora Adjunta do Distrito Abaéte e Financeiro do Ramo Escoteiro.
 
- Intercâmbio Cultural Centro Paula Souza 2023 - Destino: Inglaterra (Londres) de Fev/2024 a Mai/2024...
-
 <!---
 Thamy-Geek/Thamy-Geek is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
