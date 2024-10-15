@@ -1,7 +1,6 @@
--👋 Olá! Eu sou Thamy
+•👋 Olá! Eu sou Thamy
 Sou uma pessoa apaixonada por tecnologia. Atualmente, estou trabalhando na Area Administrativa/Financeira.
-
-•	Experiência: Sou uma pessoa apaixonada por tecnologia, atualmente, estou cursando Programação pela Escola da Nuvem, com o objetivo de ingressar como Estagiária e me desenvolver junto à organização
+Experiência: Sou uma pessoa apaixonada por tecnologia, atualmente, estou cursando Programação pela Escola da Nuvem, com o objetivo de ingressar como Estagiária e me desenvolver junto à organização
 10 anos e como Design Gráfico a 3 anos, com experiência prática nas áreas.
 - 👋 Olá! Eu sou Thamy        
 - 💼 Sobre Mim:                                                    
