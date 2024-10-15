@@ -5,7 +5,7 @@ Sou uma pessoa apaixonada por tecnologia. Atualmente, estou trabalhando na Area 
 
 - 💼Experiência: Sou uma pessoa apaixonada por tecnologia, atualmente, estou cursando Programação pela Escola da Nuvem, com o objetivo de ingressar como Estagiária e me desenvolver junto à organização
 10 anos e como Design Gráfico a 3 anos, com experiência prática nas áreas.  
--🎓 Formado em Gestãop Empresarial. Meu objetivo é contribuir para projetos de código aberto e melhorar meus conhecimentos.                                                  
+• 🎓 Formado em Gestãop Empresarial. Meu objetivo é contribuir para projetos de código aberto e melhorar meus conhecimentos.                                                  
 - 💻 Sempre em busca de novos desafios e oportunidades
 - 👀 I’Como me encontrar:
 - 🌱 LinkedIn: www.linkedin.com/in/thamara-spigolon.
