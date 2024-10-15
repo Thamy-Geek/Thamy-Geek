@@ -1,4 +1,4 @@
-•👋 Olá! Eu sou Thamy
+•👋 Olá! Eu sou Thamara "Thamy"
 
 •💞️ Sobre Mim: 
 Sou uma pessoa apaixonada por tecnologia. Atualmente, estou trabalhando na Area Administrativa/Financeira.
