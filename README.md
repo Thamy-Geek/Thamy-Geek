@@ -6,7 +6,7 @@ Sou uma pessoa apaixonada por tecnologia. Atualmente, estou trabalhando na Area 
 - 👋 Olá! Eu sou Thamy        
 - 💼 Sobre Mim:                                                    
 - 💞️ I’m looking to collaborate on wm peojetos ..
-- 👀 I’Como me encontrar ...
+- 👀 I’Como me encontrar:
 - 🌱 LinkedIn: www.linkedin.com/in/thamara-spigolon.
 - 📫 E-mail: thamara_catharine@hotmail.com. 
 - 😄 Pronouns:Ela/dela
